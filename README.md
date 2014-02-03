@@ -1,3 +1,3 @@
-FooCoin (FOO)
+EearCoin (EAC)
 
-Blah, blah, blah.
+here, here, here
